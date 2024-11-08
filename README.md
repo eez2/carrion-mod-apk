@@ -8,8 +8,6 @@ Carrion Mod APK full version flips traditional horror on its head. Instead of pl
 
 >Download: [Carrion Mod APK](https://modhello.com/carrion/)
 
->Download: [Carrion Mod APK](https://modhello.com/carrion/)
-
 ---
 
 ## Features of Carrion Mod APK
