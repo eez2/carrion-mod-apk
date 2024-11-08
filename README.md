@@ -1,10 +1,12 @@
-# Carrion Mod APK Full Version: Embrace the Monster Within
+# Carrion Mod APK Full Version Download Free For Android
 
 ---
 
 ## What is Carrion Mod APK?
 
 Carrion Mod APK full version flips traditional horror on its head. Instead of playing the hero, you become a monstrous creature, a twisted mass of flesh and tentacles, escaping from a research facility. This Android game brings the "reverse horror" genre to life, letting you experience terror as the creature. Devour humans, evade traps, and unravel the secrets of your confinement in this eerie, action-packed adventure.
+
+>Download: [Carrion Mod APK](https://modhello.com/carrion/)
 
 >Download: [Carrion Mod APK](https://modhello.com/carrion/)
 
